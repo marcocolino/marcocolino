@@ -1,4 +1,4 @@
-im just marco, and this is ascrt
+im just marco, and this is art
                                *##((#(((/&%((/*                                                                                                                                  
                          ,/((/((#((((#(/(%(####((/((#/                                                                                                                           
                       ,####///(/*((#/#//((###(#%/(#*/#**/(/                                          .                                                                           
